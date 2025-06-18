@@ -1,8 +1,12 @@
-# <p align="center"> ![image](https://github.com/user-attachments/assets/9d4befdc-7664-442c-8fbb-b0c75edf0e5c)
+# <p align="center"> ![17502844963402859670265153860963](https://github.com/user-attachments/assets/6532ae30-1e67-485f-a436-e552c32d4092)
 
 
- <p align="center"> ill be aggresive as fufck sometimes so iwec
-
-<p align="center"> 𝐁𝐏𝐃 + 𝐀𝐒𝐏𝐃 + 𝐀𝐃𝐇𝐃 
 
 
+
+ <p align="center"> ill be aggresive as fufck and swear 24/7
+
+<p align="center"> 𝗕𝗣𝗗 + 𝗔𝗦𝗣𝗗 + 𝗔𝗗𝗛𝗗
+
+
+# <p align="center"> ![17502845704402426027789759081858](https://github.com/user-attachments/assets/266b5e90-0401-435c-ac58-8213e875cd72)
