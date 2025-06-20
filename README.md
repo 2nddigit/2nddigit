@@ -4,7 +4,7 @@
 
 
 
- <p align="center"> ill be aggresive as fufck and swear 24/7
+ <p align="center"> if you don't fw me you can suck me off 
 
 <p align="center"> 𝗕𝗣𝗗 + 𝗔𝗦𝗣𝗗 + 𝗔𝗗𝗛𝗗
 
