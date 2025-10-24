@@ -6,8 +6,6 @@
 
 
 
- <p align="center"> Get informed before you interact.
-<p align="center">  Thank you.
-  
+<p align="center"> Much obliged for 82 interchanges, cheers!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ‎ <p align="center">‎ ‎ ‎ <img width="130" height="130" alt="17613319949436332005971022795213" src="https://github.com/user-attachments/assets/a238699f-82db-4d35-b671-17d7453b21ca" />
 
-<p align="center">‎ ‎ ‎ ‎ ‎ <img width="150" height="150" alt="17605253674272758466779637522118" src="https://github.com/user-attachments/assets/705a207b-098b-4c5c-b863-7b4dc00f2355" />
+ 
