@@ -2,7 +2,7 @@
 
 
 
-<p align="center"> * Writer, digital animator, artist, illustrator & impersonator! 
+<p align="center"> * Writer, digital animator, artist, illustrator & character impersonator! 
 
  
 <p align="center"> * Much obliged for twoeight ╱ twonine interchanges, cheers! <img width="10" height="10" alt="17613592618702474709874798870509" src="https://github.com/user-attachments/assets/da56f188-3aba-4d3a-92b1-007abe20c118" />
